@@ -1,1 +1,1 @@
-**ilk google ara yüzü**
+**ilk google sayfası**
